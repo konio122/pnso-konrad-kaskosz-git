@@ -1,0 +1,1 @@
+# pnso-konrad-kaskosz-git
